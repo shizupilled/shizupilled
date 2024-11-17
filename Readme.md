@@ -14,4 +14,4 @@ mainly on pt , c + h if friends ! ! ☁️ . .
 
 ; tikok - hinasaurus . com
 
-/assets/images/chiichiikawa.jpg
+/assets/images/chiichiikawa.mpg
