@@ -1,6 +1,8 @@
 ⊹ ```  . . . " as the stars collide . ☆ "
 
-🤍      - . . " there lies a guide besides thou . " 
+🤍 
+
+⟡ㅤ    - . . " there lies a guide besides thou . " 
 
 — 🐚 , 🦈 - ; hii ! , im hina . .
 
@@ -14,4 +16,5 @@ mainly on pt , c + h if friends ! ! ☁️ . .
 
 ; tikok - hinasaurus . com
 
-/assets/images/chiichiikawa.mpg
+
+( w2i if offtab . )
