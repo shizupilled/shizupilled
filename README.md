@@ -1,5 +1,7 @@
 ⊹ ```  . . . " as the stars collide . ☆ "
 
+🤍      - . . " there lies a guide besides thou . " 
+
 — 🐚 , 🦈 - ; hii ! , im hina . .
 
 mainly on pt , c + h if friends ! ! ☁️ . .
