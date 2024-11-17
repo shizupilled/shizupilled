@@ -13,3 +13,5 @@ mainly on pt , c + h if friends ! ! ☁️ . .
 ; discord - kanabeans
 
 ; tikok - hinasaurus . com
+
+/assets/images/chiichiikawa.jpg
